@@ -7,6 +7,10 @@ The recipe and branding elements is published under a Creative Commons (Attribut
 
 The first version of Franciscana APA was brewed in collaboration with Denis Galvão and Vinicius Carpentieri from Hop'n Roll Beer Club, Curitiba, Paraná, Brazil. http://hopnroll.com.br/
 
+We forgot the guaraná this time. :P
+
+But you can use 70 g of Guaraná powder. Add the Guaraná mixture the last 15 minutes. 
+
 American Pale Ale
 =================
 
